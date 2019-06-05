@@ -1,2 +1,3 @@
 # hello-git
 just my first repository
+I want to learn more someting that i just like it, and i want to see something that is intresting, and i like seeing beautful view or people even i can't go or see really. The last, i don't write or say English very long time. I'm not good at English, so i think i need to study English and more things that i didn't know....
